@@ -10,7 +10,7 @@ En este blog explicaremos los distintos cambios psicológicos (es decir cambios 
 ## Cambios cognitivos
 Se podría llegar a pensar que oscilar en esta edad significaría un deterioramiento en la cognición, a pesar de ello, esta premisa está más lejos de la realidad. No hay evidencia científicas de un descenso de las funciones cognitivas antes de los 65 años, es más justo todo lo contrario, puede haber incluso un aumento en algunas áreas como el vocabulario, cultural general, etc. El estudio longitudinal de Seattle demostró que no existe un declive producto del envejecimiento, sino que más bien dependerá de distintos factores personales, educación, culturales y socioeconómicos.
 
-<img src="https://sexabout.ru/wp-content/uploads/2019/11/18.jpg">
+<img src="data:https://img.evbuc.com/https%3A%2F%2Fcdn.evbuc.com%2Fimages%2F45428783%2F47740706915%2F1%2Foriginal.jpg?auto=compress&s=c11f768bd9dbbfd3932195e9a4f1e529">
 
 ## Cambios sociales
 Tomando la teoría del desarrollo psicosocial de Erikson, la 7ma etapa para ser más específico, generatividad contra estancamiento. La generatividad es el sostenimiento del trabajo productivo y del afecto cuando un individuo alcanza la completa madurez física, psicológica y social pero también hay un periodo de estancamiento o proceso critico de estancamiento, el cual es el sentimiento de que la vida no tiene sentido, es encontrar la vida rutinaria y aburrida
