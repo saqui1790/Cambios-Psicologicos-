@@ -19,8 +19,6 @@ En este blog explicaremos los distintos cambios psicológicos (es decir cambios 
 ## Cambios cognitivos
 Se podría llegar a pensar que oscilar en esta edad significaría un deterioramiento en la cognición, a pesar de ello, esta premisa está más lejos de la realidad. No hay evidencia científicas de un descenso de las funciones cognitivas antes de los 65 años, es más justo todo lo contrario, puede haber incluso un aumento en algunas áreas como el vocabulario, cultural general, etc. El estudio longitudinal de Seattle demostró que no existe un declive producto del envejecimiento, sino que más bien dependerá de distintos factores personales, educación, culturales y socioeconómicos.
 
-<img src="https://4.bp.blogspot.com/-s1JRsKGcCxI/TeQ3etxySGI/AAAAAAAABd8/rYrqRSiDyxA/s1600/nino-adulto-6.jpg">
-
 ## Cambios sociales
 Tomando la teoría del desarrollo psicosocial de Erikson, la 7ma etapa para ser más específico, generatividad contra estancamiento. La generatividad es el sostenimiento del trabajo productivo y del afecto cuando un individuo alcanza la completa madurez física, psicológica y social pero también hay un periodo de estancamiento o proceso critico de estancamiento, el cual es el sentimiento de que la vida no tiene sentido, es encontrar la vida rutinaria y aburrida
 Cuando la persona se encuentra en estancamiento, el psicólogo como profesional puede dar dándole ideas para valorarse, elevar su autoestima, a ensenarle que puede hacer y realizar sus sueños pero cabe que recalcar que se puede ayudar al adulto motivándolo siempre y cuando el paciente quiera.
@@ -33,6 +31,7 @@ Además los resultados de las encuestas demuestran que a mitad de nuestra vida l
 Podemos decir que existen dos tipos de causas de esta crisis, las causas directas que vendrían siendo los distintos cambios en diversas áreas (físico, social, económico, cognitivo y demás) y las causas indirectas que vendrían siendo las consecuencias sociales, personales, etc. debido a esos efectos, por ejemplo: la presión social de no cumplir los estereotipos de belleza producto del deterioro en la piel por parte de las mujeres. Además pueden existir otros factores como “el nido vacío”, muerte de algún familiar (con ello pueden tener una visión “más cercana a la muerte”), etc.
 Pero hay que destacar que, los psicólogos del desarrollo enfatizan que dicha crisis no necesariamente afecta a todos los hombres y/o mujeres, por ejemplo no será lo mismo una persona que a distintos niveles o contextos haya cumplido sus expectativas de una persona que no ha logrado esto. Además de ello tenemos que recordar que cada persona tendrá un “tipo de crisis diferente” y con ello, una manera particular de responder, algunos se convertirán en adictos al trabajo, otros adictos a la apariencia física, otros usaran esta crisis como “una especie de motivación” para ejercer algún proyecto nuevo.
 
+<img src="https://3.bp.blogspot.com/-B7GaqTc4SBM/Ue-0d3mII8I/AAAAAAAAAJM/Uqb0tBH7MN0/s1600/reloj+de+la+vida.bmp">
 
 ## Importante
 La personalidad es un rasgo muy estable a lo largo de la vida y va a influir en el proceso de envejecimiento: una personalidad positiva va a favorecer el estado de ánimo y el bienestar subjetivo de la persona, va a proteger, en definitiva, la salud psicológica y la capacidad de aceptar y de adaptarse a los cambios propios de la edad.
@@ -42,8 +41,9 @@ Como hemos mencionado anteriormente, a medida que envejecemos, los distintos sis
 
 Es aquí en donde trataremos acerca de la artritis, un trastorno crónico que se caracteriza por la inflamación o degeneración de una o más articulaciones. El tipo que más se relaciona con el envejecimiento es la “Osteoartritis” y es el tipo más común de artritis. Suele relacionarse con el envejecimiento y es por eso que es la más común dentro de los adultos mayores.
 
-## Síntomas
+<img src="https://www.redaccionmedica.com/images/enfermedades/artritis-reumatoide.jpg">
 
+## Síntomas
 •	Dolor. Las articulaciones afectadas pueden doler durante o después del movimiento.
 •	Rigidez. La rigidez en las articulaciones puede ser más notoria al despertar o después de estar inactivo.
 •	Sensibilidad. Es posible que su articulación esté sensible cuando aplicas un poco de presión sobre ella o cerca de ella.
