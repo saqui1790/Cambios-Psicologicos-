@@ -7,7 +7,8 @@ El objetivo del blog es informar acerca de las consecuencias que se transcurren 
 
 ## Cambios psicológicos en la adultez media 
 Dentro de cada etapa del ciclo vital, existen ciertos cambios y características únicas, en donde en cada etapa debido al desarrollo, se pierde algo pero por el otro lado también se gana. Por lo general podemos decir que la infancia se caracteriza por la inocencia y la búsqueda, la adolescencia principalmente como una etapa de cambios, nuevos intereses y de experiencias, pero ¿y la adultez? 
-En este blog explicaremos los distintos cambios psicológicos (es decir cambios sociales, cognitivos, del comportamiento y demás.) que se van produciendo dentro del desarrollo del adulto, concretamente del adulto medio (entendamos “adulto medio” a la persona que oscila entre los 40-65 años). 
+En este blog explicaremos los distintos cambios psicológicos (es decir cambios sociales, cognitivos, del comportamiento y demás.) que se van produciendo dentro del desarrollo del adulto, concretamente del adulto medio (entendamos “adulto medio” a la persona que oscila entre los 40-65 años).
+
 ## Cambios cognitivos
 Se podría llegar a pensar que oscilar en esta edad significaría un deterioramiento en la cognición, a pesar de ello, esta premisa está más lejos de la realidad. No hay evidencia científicas de un descenso de las funciones cognitivas antes de los 65 años, es más justo todo lo contrario, puede haber incluso un aumento en algunas áreas como el vocabulario, cultural general, etc. El estudio longitudinal de Seattle demostró que no existe un declive producto del envejecimiento, sino que más bien dependerá de distintos factores personales, educación, culturales y socioeconómicos.
 
