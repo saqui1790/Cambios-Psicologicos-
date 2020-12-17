@@ -46,10 +46,4 @@ Los síntomas de la artritis generalmente se pueden controlar, aunque el daño a
 6.	¿Qué influencia tiene el entorno en las diferentes etapas?
 7.	¿Cómo influye la educación familiar que se recibe en la niñez en las etapas posteriores?
 
-<script src="https://www.gstatic.com/dialogflow-console/fast/messenger/bootstrap.js?v=1"></script>
-<df-messenger
-  intent="WELCOME"
-  chat-title="Deber_Logica_Matematicas"
-  agent-id="88185b68-d7e7-454c-ab0b-c8dceae0feb8"
-  language-code="es"
-></df-messenger>
+
