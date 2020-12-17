@@ -3,8 +3,6 @@
 ## Objetivo
 El objetivo del blog es informar acerca de las consecuencias que se transcurren dentro de esta etapa para así concientizar a los familiares de personas que oscilen en esta edad los distintos cambios y cómo afrontarlos, además de ello, generar consciencia en los jóvenes adultos y adolescentes de los hábitos que tienen hoy en día para evitar complicaciones a futuro.
 
-<img src="https://smart.siedlce.pl/wp-content/uploads/2018/01/dorosli_dzien.png">
-
 ## Cambios psicológicos en la adultez media 
 Dentro de cada etapa del ciclo vital, existen ciertos cambios y características únicas, en donde en cada etapa debido al desarrollo, se pierde algo pero por el otro lado también se gana. Por lo general podemos decir que la infancia se caracteriza por la inocencia y la búsqueda, la adolescencia principalmente como una etapa de cambios, nuevos intereses y de experiencias, pero ¿y la adultez? 
 En este blog explicaremos los distintos cambios psicológicos (es decir cambios sociales, cognitivos, del comportamiento y demás.) que se van produciendo dentro del desarrollo del adulto, concretamente del adulto medio (entendamos “adulto medio” a la persona que oscila entre los 40-65 años).
