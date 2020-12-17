@@ -53,8 +53,12 @@ Es aquí en donde trataremos acerca de la artritis, un trastorno crónico que se
 •	Sensibilidad. Es posible que su articulación esté sensible cuando aplicas un poco de presión sobre ella o cerca de ella.
 Pérdida de flexibilidad. Es posible que no puedas mover la articulación en todo su rango de movimiento 
 
-## Recomendaciones
+## Recomendaciones generales
 Los síntomas de la artritis generalmente se pueden controlar, aunque el daño a las articulaciones no se puede revertir. Mantenerse activo, mantener un peso saludable y algunos tratamientos pueden retrasar el avance de la enfermedad y ayudar a mejorar el dolor y la función de las articulaciones.
+
+La clave para una etapa de adultez media exitosa es realizar actividad física moderada dedicando  unos 150 minutos semanales, la caminata es una de las mejores opciones, ya que favorece la sensación de seguridad, mejora el equilibrio, aumenta la velocidad de desplazamiento, reduce el estrés y previene el riesgo de enfermedades cardiacas.
+
+Es vital para un adulto medio que se relacione con la gente que le importa, reunirse con amigos, bailar, conversar, pintar, entre otras actividades lo cual favorecen al bienestar y a su calidad de vida, se considera que es importante que no solo se relacione con familiares y amigos sino que también comparta e intercambie experiencias y conocimientos.
 
 ## Preguntas para reflexionar  
 1.	¿Existe realmente una diferencia entre la adultez media de la temprana o la tardía? 
