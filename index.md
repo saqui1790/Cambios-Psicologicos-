@@ -3,6 +3,11 @@
 ## Objetivo
 El objetivo del blog es informar acerca de las consecuencias que se transcurren dentro de esta etapa para así concientizar a los familiares de personas que oscilen en esta edad los distintos cambios y cómo afrontarlos, además de ello, generar consciencia en los jóvenes adultos y adolescentes de los hábitos que tienen hoy en día para evitar complicaciones a futuro.
 
+## Cambios Biológicos
+Alrededor de los 50 años la decadencia de la capacidades físicas del adulto esta regularmente tan graduado que no se llega a notar la diferencia que se genera, dentro de esta etapa comienza a surgir la preocupación por los cambios en sus capacidades reproductoras y sexuales, se catalogan la menopausia para las mujeres y el periodo crítico masculino, se disminuye la agilidad para poder caminar, pero sobre todo se suele generar la angustia por la disminución del atractivo físico. El gusto, el olfato y la sensibilidad al dolor y la temperatura por lo regular no presentan ningún cambio o disminución hasta cerca de los 45 a los 50 años, además de que la altura que era estable a partir de esa edad empieza a declinarse.
+Uno de los cambios principales durante la edad media es la disminución de las capacidades reproductoras, las cuales son diferentes tanto para hombres como mujeres, la capacidad para poder dar a luz hijos se culmina durante este periodo, la menopausia ocurre cuando una mujer deja biológicamente de ovular y de menstruar y ya no puede concebir hijos. Mientras que en promedio los hombres  aunque pueden continuar engendrando hijos igual comienzan a percibir una disminución de la fertilidad, lo que afecta la frecuencia de las eyaculaciones y un aumento de la impotencia.
+Una vez que estas señales de la juventud se han ido, para muchos hombres también se ha perdido la idealización de una mujer como compañera sexual y romántica y se mantiene aún como presunta empleada o socia de negocios.
+
 ## Cambios psicológicos en la adultez media 
 Dentro de cada etapa del ciclo vital, existen ciertos cambios y características únicas, en donde en cada etapa debido al desarrollo, se pierde algo pero por el otro lado también se gana. Por lo general podemos decir que la infancia se caracteriza por la inocencia y la búsqueda, la adolescencia principalmente como una etapa de cambios, nuevos intereses y de experiencias, pero ¿y la adultez? 
 En este blog explicaremos los distintos cambios psicológicos (es decir cambios sociales, cognitivos, del comportamiento y demás.) que se van produciendo dentro del desarrollo del adulto, concretamente del adulto medio (entendamos “adulto medio” a la persona que oscila entre los 40-65 años).
@@ -46,4 +51,5 @@ Los síntomas de la artritis generalmente se pueden controlar, aunque el daño a
 6.	¿Qué influencia tiene el entorno en las diferentes etapas?
 7.	¿Cómo influye la educación familiar que se recibe en la niñez en las etapas posteriores?
 
-
+## Caso.
+Una mujer de 42 años con 2 hijos  va empezando su etapa de la adultez media comunica como va sintiendo los cambios de la adultez media, menciona el hecho de ya no se siente hábil al realizar ciertas actividades físicas como cuando era joven, además de que se cansa con mayor facilidad al realizar tareas del hogar o las actividades y tareas que debe de hacer en el trabajo, asimismo comenta que atraviesa ciertos cambios de humor repentinos sin saber la causa de estos.  
